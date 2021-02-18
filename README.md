@@ -1,3 +1,4 @@
 # kominarct
 
-kominar and court is called kominct
+kominar ji
+kya re baba
